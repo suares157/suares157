@@ -1,16 +1,12 @@
-### Hi there 👋
 
-<!--
-**suares157/suares157** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### dale dale tricolor gaúcho 💙
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+sou de maralúcia 
+estudo no colégio maralúcia
+tenho 17 anos
+sou gremista
+nasido em cascavel dia 02/06/2006
+sou fanatico por futebol
+quero ser narrador de jogos 
+gostode escutar música.   
+ 
